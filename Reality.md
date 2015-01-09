@@ -1,0 +1,60 @@
+Reality
+=========
+
+Met you by surprise, I didn't realize  
+That my life would change forever  
+Saw you standing there, I didn't know I cared  
+There was something special in the air.
+
+Dreams are my reality  
+The only kind of real fantasy  
+Illusions are a common thing  
+I try to live in dreams  
+It seems as if it's meant to be.
+
+Dreams are my reality  
+A different kind of reality  
+I dream of loving in the night  
+And loving seems alright  
+Although it's only fantasy.
+
+If you do exist, honey don't resist  
+Show me a new way of loving  
+Tell me that it's true  
+Show me what to do  
+I feel something special about you.
+
+Dreams are my reality  
+The only kind of reality  
+Maybe my foolishness has past  
+And maybe now at last  
+I'll see how a real thing can be.
+
+Dreams are my reality  
+A wonderous world where I like to be  
+I dream of holding you all night  
+And holding you seems right  
+Perhaps that's my reality.
+
+Met you by surprise, I didn't realize  
+That my life would change forever  
+Tell me that it's true  
+Feelings that are cue  
+I feel something special about you.
+
+Dreams are my reality  
+A wonderous world where I like to be  
+Illusions are a common thing  
+I try to live in dreams  
+Although it's only fantasy.
+
+Dreams are my reality  
+I like to dream of you close to me  
+I dream of loving in the night  
+And loving you seems right  
+Perhaps that's my reality.
+
+###说明
+这首歌贯穿了电影《初吻》，给电影增色不少。
+
+2015/1/9
