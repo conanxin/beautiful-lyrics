@@ -1,0 +1,54 @@
+Moonlight Shadow
+==================
+
+The last that ever she saw him  
+Carried away by a moonlight shadow  
+He passed on, worried and warning  
+Carried away by a moonlight shadow  
+
+Lost in a riddle that Saturday night  
+Far away on the other side  
+He was caught in the middle of a desperate fight  
+And she couldn't find how to push through  
+
+The trees that whisper in the evening  
+Carried away by a moonlight shadow  
+Sing a song of sorrow and grieving  
+Carried away by a moonlight shadow  
+
+All she saw was a silhouette of a gun  
+Far away on the other side  
+He was shot six times by a man on the run  
+And she couldn't find how to push through  
+
+I stay, I pray  
+See you in Heaven, far away  
+I stay, I pray  
+See you in Heaven one day  
+ 
+4 am in the morning  
+Carried away by a moonlight shadow  
+I watched your vision forming  
+Carried away by a moonlight shadow  
+
+Stars move slowly in a silvery night  
+Far away on the other side  
+Will you come to talk to me this night  
+But she couldn't find how to push through  
+
+I stay, I pray  
+See you in Heaven, far away  
+I stay, I pray  
+See you in Heaven one day  
+
+Caught in the middle of a hundred and five  
+Far away on the other side  
+The night was heavy and the air was alive  
+But she couldn't find how to push through  
+
+Carried away by a moonlight shadow  
+Carried away by a moonlight shadow  
+Far away on the other side  
+
+###说明：
+今天的天气也很好，雨后的夜晚也能看到天空中的云彩。
