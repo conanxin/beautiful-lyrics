@@ -1,0 +1,39 @@
+I Must Have Lost It On The Wind
+===============================
+
+I'm no longer counting, I'm not keeping score  
+I could say my list of lovers doesn't matter anymore  
+But some are always in my heart and some I'm not so sure  
+Either way they all left their mark and for some I found a cure  
+
+And from one you learn something, another you learn nothing  
+And there's one who might teach you everything  
+But before I learned to listen if indeed someone said it  
+Then I guess I must have lost it on the wind  
+
+Back when I was younger each one was a prize  
+Love just came along and hit you right between the eyes  
+And one was just a trophy catch, and one was like a curse  
+Some would want to bleed you dry, some might quench your thirst  
+
+And from one you learn something, another you learn nothing  
+And there's one who might teach you everything  
+But before I learned to listen and if indeed someone said it  
+Then I guess I must have lost it on the wind  
+
+And from one you learn something, another you learn nothing  
+And there's one who might teach you everything  
+But before I learned to listen and if indeed someone said it  
+Then I guess I must have lost it on the wind  
+
+In cold water I went fishing, in warm seas I cast a line  
+And swore the heart I was reeling in was perfect at the time  
+You couldn't tell me I were wrong, you couldn't tell me anything  
+And if you did then I guess I must have lost it on the wind  
+
+And if you did then I guess I must have lost it on the wind  
+And if you did then I guess I must have lost it on the wind  
+And if you did then I guess I must have lost it on the wind  
+
+###说明
+I Must Have Lost It On The Wind
